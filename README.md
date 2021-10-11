@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @laurastehlikova
+- 👀 I’m interested in art.
+- 🌱 I’m currently learning in the elementary School.
